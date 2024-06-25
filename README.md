@@ -1,2 +1,4 @@
 # test
-just test 
+just tes 
+
+BU proyect github organish uchun qlinvoti !!!!
